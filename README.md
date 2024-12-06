@@ -1,2 +1,3 @@
 # practice
-*Call of Duty*
+*Animation*
+*Application Development and Emerging Technologies*
