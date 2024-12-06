@@ -1,2 +1,2 @@
 # practice
-*BSIT 3.1C*
+*my one and only "DONNY PANGILINAN"*
