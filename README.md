@@ -1,2 +1,2 @@
 # practice
-*Adobong sitaw*
+*Adobong sitaw: soysauce, vinegar,oyster sauce*
