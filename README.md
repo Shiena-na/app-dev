@@ -1,2 +1,2 @@
 # practice
-*To be a Flight Attendant*
+*Barangay Connect: A Digital Platform for Enhanced Community Services and Citizen Engangement*
