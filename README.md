@@ -1,2 +1,2 @@
 # practice
-*my one and only "DONNY PANGILINAN"*
+*Adobong sitaw*
